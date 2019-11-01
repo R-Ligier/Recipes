@@ -2,13 +2,13 @@
 
 **Serves:** 8 persons
 
-#### Ingredients
+### Ingredients
 
-### For the pan:
+#### For the pan:
 - 2 tps. butter
 - 2 TBS.granulated sugar
 
-### For the batter:
+#### For the batter:
 - 1/2 cup plus 1 TBS. (120 grams) unsalted butter, softened
 - 1/2 cup plus 2 TBS. (120 grams) granulated sugar
 - 2 large eggs
@@ -17,13 +17,13 @@
 - 1 TBS. baking powder
 - 1/4 tsp. salt
 
-### For the glaze:
+#### For the glaze:
 - 2/3 cup sugar
 - 1/3 cup orange juice
 - 1/4 cup butter
 - 1 tsp. orange zest
 
-#### Instructions
+### Instructions
 
 1. Preheat the oven to 180°C (350°F).
 2. First, prepare the pan. Butter the bottom and sides of a 22-to-25-cm (9-to-10-inch) round cake pan with the 2 teaspoons butter. Sprinkle with the 2 tablespoons sugar, then shake and tilt and swoosh the pan around to coat. 
