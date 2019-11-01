@@ -1,5 +1,6 @@
 ## Soft Sugar Cookies
 
+**Serving:** 24 Cookies
 
 #### Ingredients
 - 2 1/2 cups all-purpose flour
