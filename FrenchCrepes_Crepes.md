@@ -20,4 +20,6 @@
 5. Brown on both sides about 1-2 minutes on each sides and serve hot with your favorite fillings.
 
 #### Notes
-- Crepes can be enjoyed as savory or sweet! Add what ever toppings you desire. 
+- Crepes can be enjoyed as savory or sweet! 
+- Filling ideas: jam, chocolate spread, honey, maple syrup, apple compote, fruits, nut butters, whipped cream, ice cream, nuts, coconut and more!
+- Store: you can cook all the crepes then store them in the fridge, on a plate covered with plastic wrap. It store well up to 2 days. 
