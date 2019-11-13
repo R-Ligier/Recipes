@@ -1,2 +1,2 @@
 # Recipes
-Recipes for all types of food
+Recipes for all different foods I've baked and cooked. 
