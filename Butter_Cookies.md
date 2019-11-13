@@ -1,6 +1,6 @@
 ## Butter Cookies
 
-**Serving:**
+**Serving:** 24
 
 #### Ingredients
 
