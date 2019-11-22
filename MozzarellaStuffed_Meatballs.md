@@ -1,4 +1,4 @@
-## Spicy Mozzerella Stuffed Meatballs
+## Mozzerella Stuffed Meatballs
 
 #### Ingredients:
 - 1/2 pound ground beef
